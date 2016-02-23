@@ -1,0 +1,1 @@
+¯A%¯Aquick test of method

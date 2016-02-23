@@ -1,0 +1,1 @@
+¯A%¯ANOW:THAT:WE:HAVE:CHANGED:THE:ENCODING:FROM:UTF-8:TO:windows-1252:LET'S:TRY:SOME:OUTPUT!
